@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **I have loved programming since I was 12 years old.**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Discord: @geta1005:</h3>
 <p align="left">
 </p>
 
